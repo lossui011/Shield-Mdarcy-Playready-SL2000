@@ -1,2 +1,2 @@
-# Shield-Mdarcy-Playready-SL2000
-drm pyplayready sl2000 sl3000 hisense lg shield cheap certs zgpriv bgroupcert .prd API
+# works for amazon 4k ~
+contact lossui011@proton.me to get the best deal now
